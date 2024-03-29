@@ -5,6 +5,8 @@
 # CAPITULO 1 
 
 #### CAPITULO 1.1
+StartUp: Nuestra starup está bien piola zy o k jaja
+k kreizi
 
 # CAPITULO 2 
 
