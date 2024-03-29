@@ -6,7 +6,7 @@
 
 #### CAPITULO 1.1
 StartUp: Nuestra starup está bien piola zy o k jaja
-k kreizi
+k kreizi, ojolero chito fredi fazber
 
 # CAPITULO 2 
 
